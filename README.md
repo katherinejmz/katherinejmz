@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @katherinejmz
+- 👋 Hi, I’m katherine
 - 🌱 I’m currently learning IT/Technologies
 - 📫 k.jimenezbone@icloud.com
 
